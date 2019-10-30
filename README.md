@@ -7,6 +7,7 @@ Business major freshman searching for learning opportunities through internships
 ## Education
 
 **May 2023**
+
 **College of Business and Economics**,
 Lehigh University, 
 Bethlehem, PA		
