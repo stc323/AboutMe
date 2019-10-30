@@ -14,7 +14,7 @@ Lehigh University, Bethlehem, PA
 
 ## Experience
 
-**July 2019 - Present
+**July 2019 - Present**
 
 **Rocky Run YMCA**, 
 Media, PA
